@@ -1,1 +1,0 @@
-# Bhum-Thongsuwan-spim-codingg
